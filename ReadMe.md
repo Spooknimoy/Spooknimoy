@@ -1,5 +1,5 @@
 # 💫 About Me:
- Estou a procura de trabalho, afim de ter um aprendizado melhor<br>🌱 Fanzendo faculdade de ADS, além de procurar cursos online como udemy e etc ...<br>🤔 procuro ajuda em qualquer tipo de area, quanto mais aprendizado melhor<br>💬 contate-me no email: luanpablo465@gmail.com ou luan.pablo@iesb.edu.br
+ Estou a procura de trabalho, afim de ter um aprendizado melhor<br>🌱 Fanzendo faculdade de ADS, além de procurar cursos online como udemy e etc ...<br>🤔 procuro ajuda em qualquer tipo de area, quanto mais aprendizado melhor<br>💬 contate-me no email: luanpablo465@gmail.com ou luan.pablo@iesb.edu.br<br> meu replit: https://replit.com/@LuanPablo7
 
 
 ## 🌐 Socials:
